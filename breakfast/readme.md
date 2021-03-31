@@ -6,7 +6,7 @@
 
 ## Ingredients:
 2 boxes of tofu
-6 eggs
+12 eggs
 1 onion
 Salt
 Pepper
