@@ -21,7 +21,7 @@ Splash of dry white wine
 2 cups fresh spinach
 1/4 teaspoon salt
 Fresh cracked pepper, to taste
-8 oz cooked rice or pasta
+12 oz cooked rice or pasta
 
 
 ## Equipment needed:
@@ -52,7 +52,7 @@ become too runny!
 
 ### Notes:
 Super yummy and easy to make - the buttery sauce is amazing!
-
+Delicious!
 
 ### Codemates #
 @dpanic286, @mrayxu, @CorrineMarquardt, @Amayesing
