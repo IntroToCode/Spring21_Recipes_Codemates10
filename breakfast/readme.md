@@ -11,6 +11,7 @@
 Salt
 Pepper
 1 avocado
+1 splash of vegitable oil
 
 Other fruit suggestions?
 ## Equipment needed:
