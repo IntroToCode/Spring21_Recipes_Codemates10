@@ -15,7 +15,7 @@ Kosher salt, freshly ground pepper
 2½ cups low-sodium chicken broth, divided
 1 tablespoon fresh lemon juice
 1 teaspoon finely grated lemon zest
-1/2 cup crushed cashews
+1/2 cup crushed cashews (optional)
 
 ## Equipment needed:
 Large cast iron skillet
