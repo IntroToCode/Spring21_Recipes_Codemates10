@@ -14,6 +14,11 @@ Pepper
 1 splash of vegetable oil
 2 tomatoes
 
+3 banana (optional)
+3 apple (optional)
+15 strawberries (optional)
+Honey (optional)
+
 ## Equipment needed:
 Skillet
 
