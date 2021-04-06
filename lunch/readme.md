@@ -20,6 +20,10 @@ Kosher salt, freshly ground pepper
 ## Equipment needed:
 Large cast iron skillet
 Stove top and oven
+Wooden spoon
+Lemon squeezer
+Knife
+Tongs
 
 ## Steps for preparation:
 
