@@ -28,6 +28,9 @@ Fresh cracked pepper, to taste
 Oven
 Oven-proof skillet
 Pot
+Oven mitts
+Tongs
+Wooden spoon
 
 
 ## Steps for preparation:
