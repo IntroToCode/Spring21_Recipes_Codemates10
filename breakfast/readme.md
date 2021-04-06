@@ -21,6 +21,9 @@ Honey (optional)
 
 ## Equipment needed:
 Skillet
+Paper towel
+Knife
+Wooden spoon
 
 ## Steps for preparation:
 1. Pat tofu dry, dice onions, dice tomatoes
