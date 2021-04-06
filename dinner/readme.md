@@ -12,7 +12,7 @@
 3 Tablespoons Unsalted butter, divided
 4 cloves garlic, chopped
 1 cup chicken broth
-1/2 cup heavy cream
+1/2 cup heavy cream (or 1/3 cup soy milk and 1/6 cup olive oil)
 1/3 cup Parmesan cheese, freshly grated
 2 Tablespoons fresh parsley, chopped
 Juice of 1 lemon
@@ -33,13 +33,14 @@ Pot
 ## Steps for preparation:
 1. Preheat oven to 400 degrees F.
 2. Season the chicken with salt, pepper and paprika. Set aside.
-3. Melt 2 Tablespoons of butter in a large oven-proof skillet (a Le Creuset Dutch Oven works well or a
+3. [Optional] If you do not want to use heavy cream, make your low-cal heavy cream substitute by stirring 1/3 cup soy milk and 1/6 cup olive oil.
+4. Melt 2 Tablespoons of butter in a large oven-proof skillet (a Le Creuset Dutch Oven works well or a
 RockCrok or cast iron skillet) over medium high heat.
 4. Add the chicken and sear both sides until golden brown, about 2-3 minutes per side. Remove and set
 chicken aside on separate plate.
 5. While the chicken is resting, return back to the same skillet and melt remaining tablespoon of butter in
 the skillet. Add garlic and saute for 2 more minutes.
-6. Stir in chicken broth, heavy cream, Parmesan cheese, lemon juice, splash of wine and thyme.
+6. Stir in chicken broth, heavy cream (or soy milk/olive oil mixture), Parmesan cheese, lemon juice, splash of wine and thyme.
 7. Bring sauce to a boil and reduce heat. Add in the spinach and parsley and simmer until the spinach and
 parsley has wilted and the sauce has slightly thickened.
 8. Continue to cook the sauce about 5-7 minutes so the sauce becomes thicker. You don't want the sauce to
